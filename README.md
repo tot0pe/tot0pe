@@ -1,0 +1,4 @@
+- hi everyone I'm @tot0pe 
+- currently I'm studying Engineering at University of Chile, looking forward to get into the Math major
+- im just trying new stuff on here, looking forward to learn the basics of programming and the process of making a project
+- you can reach me at javier.torober@gmail.com
